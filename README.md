@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @giuseppe3107
+- 👀 I’m interested in Economy, Technology, Politics
+- 🌱 I’m currently learning Business Administration
